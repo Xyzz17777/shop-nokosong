@@ -1,0 +1,2 @@
+# shop-nokosong
+jaya selalu
